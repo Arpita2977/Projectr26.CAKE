@@ -1,0 +1,7 @@
+Flour (approx.200 gms)
+Curd (1 cup)
+Granualated Sugar (165 gms)
+Baking Soda (1/2 teaspoon)
+Baking Powder((1 teaspoon))
+Cooking Oil(125 ml)
+Vanilla Extract or Essence(1 teaspoon)
